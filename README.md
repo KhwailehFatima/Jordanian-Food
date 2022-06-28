@@ -1,0 +1,2 @@
+# MacDonald-s
+Fast Food
